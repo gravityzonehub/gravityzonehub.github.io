@@ -50,13 +50,12 @@
 ---
 
 ### Connect With Me  
-- 🎶 [SoundCloud](https://soundcloud.com/ryaderangi)  
+- 📷 [Instagram](https://Facebook.com/Arjelicc) 
 - 📷 [Instagram](https://instagram.com/Arjelicc)  
 - 📡 [Telegram](https://t.me/jeliccray)  chanell
--  📡 [Telegram](https://t.me/gravityyzone) Topic
-   📡 [Telegram](https://t.me/Arjelicc) Admin
-   
-
+- 📡 [Telegram](https://t.me/gravityyzone) Topic
+- 📡 [Telegram](https://t.me/Arjelicc) Admin
+- 🎶 [SoundCloud](https://soundcloud.com/ryaderangi)   
 
 ---
 ⚡ *"Blending music, art, and technology into one GravityZone."*
